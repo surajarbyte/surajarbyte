@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @surajarbyte
-- 👀 I’m interested in building things 
+- 👀 I’m interested in building thi...
 
 
 <!---
